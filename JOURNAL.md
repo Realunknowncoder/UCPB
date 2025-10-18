@@ -10,3 +10,13 @@ This is my journal of the design and building process of **UCPB (Ultimate Comput
 You can view this journal in more detail on **Hack Club Blueprint** [here](https://blueprint.hackclub.com/projects/691).
 
 
+## 10/18/2025 - Installed the apps  
+
+WhatsApp everyone, UC here!
+Like the title said, I only installed the apps needed for this one of a kind totally not replicated project!
+More update will be coming soon (I hope) and let's pray it's more then just installing apps :)
+
+Anyways this was Unknown Coder, See you soon![byl3x8d3hbn71.webp](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6MzA0MywicHVyIjoiYmxvYl9pZCJ9fQ==--167d07bc04136bc6529508f407940086ff75617c/byl3x8d3hbn71.webp)
+[byl3x8d3hbn71.webp](/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6MzA0MiwicHVyIjoiYmxvYl9pZCJ9fQ==--d64b607ef32aee28cf4d5b538705f97b731ef9dd/byl3x8d3hbn71.webp)
+  
+
